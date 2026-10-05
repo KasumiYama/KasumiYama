@@ -1,6 +1,6 @@
 -ˋˏ✄┈┈┈┈ 𝐖𝐄𝐋𝐂𝐎𝐌𝐄 ☆*: .｡. o(≧▽≦)o .｡.:*☆
 
-Hey hey I'm Ash a 17 y/o Non-Binary alien 😋👽
+Hey hey I'm Ash a 18 y/o Non-Binary alien 😋👽
 
 <img width="403" height="403" alt="image" src="https://github.com/user-attachments/assets/9ae3ad9f-3f24-4a75-9555-f82d7456b1bc" />
 
