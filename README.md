@@ -24,6 +24,5 @@ Fandoms im in:
 <img width="680" height="239" alt="image" src="https://github.com/user-attachments/assets/ee8bebe7-ab59-48d9-b1b1-206e40c8a85e" />
 
 
-if u wanna talk with me then come up on Pony Town or text me over Discord: silly_ashboy
-
+if u wanna talk with me then come up on Pony Town or text me over Discord: ashg1rl_silly
 {}.˳·˖✶𓆩𓁺𓆪✶˖·˳.-ˋˏ✄┈┈┈┈⋆˚࿔ Byeeee 𝜗𝜚˚⋆
